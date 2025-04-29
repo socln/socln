@@ -4,7 +4,8 @@
 - 💞️ I’m looking to collaborate on projects🤔 depositing large sum$ & getting off & eating good!😋
 - 📫 How to reach me msg,comment whatever @Github
 - 😄 Pronouns: we us ours
--⚡ Fun fact: currency food and pleasure are grrrrreat!
+
+●⚡ Fun fact: currenc¥,food,and pleasure are grrrrreat!
 
 <!---
 socln/socln is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
